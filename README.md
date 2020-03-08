@@ -74,7 +74,7 @@ MIT / BSD
 Author Information
 ------------------
 
-My name is Gaétan. You can follow me on [Twitter](https://twitter.com/gaetanict)
+My name is Gerson. You can follow me on [Instagram](https://instagram.com/gersondeaguiar)
 
 Website: [ICT Pour Tous](https://www.ictpourtous.com)
 
